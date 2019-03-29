@@ -1,2 +1,2 @@
 # furryanimedungeon
-i play squash in here
+this is illegal
